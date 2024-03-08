@@ -1,1 +1,1 @@
-Being able to code is similar to have superpower, you can do tons of things with it.
+Being able to code is similar to have a superpower, you can do tons of things with it.
